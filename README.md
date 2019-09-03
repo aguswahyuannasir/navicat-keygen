@@ -1,0 +1,2 @@
+# navicat-keygen
+crack navicat
